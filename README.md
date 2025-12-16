@@ -38,4 +38,4 @@ This Privacy Policy may be updated if app functionality changes. Any updates wil
 
 If you have questions about this Privacy Policy, you may contact us at:
 
-Email: support@exactlyapps.com
+Email: jflow35@msn.com
